@@ -6,4 +6,4 @@ Also, I have a [Linkedin](https://www.linkedin.com/in/fabio-henrique-nardella-3a
 
 ![LINKEDIN](https://github.com/Fubinnn/Fubinnn/assets/102842907/796c349e-4174-418b-b7a8-4c43d22d296d)
 
-## Thank you for your time reading this, God bless you!
+## Thank you for your time!
